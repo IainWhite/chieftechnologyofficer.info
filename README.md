@@ -1,2 +1,2 @@
-# chieftechnologyofficer.info
-Chief Technology Officer info by Iain White
+# Chief Technology Officer info
+Chief Technology Officer (CTO) info by Iain White
